@@ -1,2 +1,0 @@
-# Atividades
-Lista de atividades
